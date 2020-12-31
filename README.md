@@ -31,6 +31,26 @@ answer your questions about how to read apocalyptic literature.
   5. Pastoral/Poetic
 * Reading revelations is two contrasting opinions:
   * reading it as a secretive code that is understood once its filfilled
-  * metaphorical lens (refer to past events in the bible as design patterns for what will take place)
+  * metaphorical lens (refer to past events in the bible as design patterns for
+    what will take place)
 * is the book for past or future readers?
+* Jesus picks up Jeremiah's depiction of the destruction of the temple
+* prophets gives warnings of covenants and babylon is coming to town and
+  restoration
+* the apostles calls Easter morning the "now and not yet" since Jesus
+  resurrected. The restoration of the world happened with one person instead of
+  the whole world at that time.
+* Jesus quotes Isaiah 13 and 24 referencing Jersuselem as the fall of Babylon
+  (this is prophetic poetry)
+* every generation is to see themselves in revelation as Jesus did (i.e. letter
+  written to 1st century church)
+* in english, the end is a point in time "to happen" and yet in the biblical
+  account, the the end already happened with Jesus resurrecting on Easter
+  morning
+* Paul calls it in 1 Corinthains 10 as the overlap and meeting of the "ends of
+  the ages" coming together (of what we thought were two different things)
+* Paul says he was in the end times in Timothy and Peter in his second letter * 
+* Go does not choose for you, He requires discernment, responsibility and ownership
+* Apocalypse means = coming to know something about Jesus
+* inverse of eachother, tests reveal what is in someone and apocalypse reveals something about God
 * 
